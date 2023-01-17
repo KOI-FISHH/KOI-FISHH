@@ -13,9 +13,11 @@ BYI
 - i swear alot
 - **do not copy or take inspo of my skins** 
 - i will hide you if i think your weird lmao
+- DO NOT GIVE ME PRESENTS PLS. and if i decline that does not mean im trying to be mean, i have all of them ok
 
   DNI
     - under 14 & over 18
     - basic dni, homophobes,bigots,proshippers/comshippers,zoos,fujoshis,online daters
-    
+    - if your annoying 
+    - hb/hh, southpark, dmsp fandom
 
