@@ -6,7 +6,7 @@ INTRO
 
 BYI/INFO
 - i might come off as mean/blunt as sometimes, i apologize for that
-- i do not like random ppl cuddling/booping/kissing me. [i do not have tt/td its just annoying]
+- i do not like random ppl cuddling/kissing me. [i do not have tt/td its just annoying]
 - i suck at socialzing lmao 
 - usually afking/drawing in library 
 - i swear alot
